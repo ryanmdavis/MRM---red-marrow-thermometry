@@ -1,2 +1,0 @@
-MRM---red-marrow-thermometry
-============================
